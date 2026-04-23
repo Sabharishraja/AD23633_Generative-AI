@@ -1,1 +1,0 @@
-# AD23633_Generative-AI
